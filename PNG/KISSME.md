@@ -1,0 +1,1 @@
+for logos and pictures
